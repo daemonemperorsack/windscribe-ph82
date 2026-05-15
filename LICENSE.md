@@ -1,4 +1,4 @@
-
+Windscribe exclusive Extension: smart-DNS & end-to-end-encryption offers the most advanced Windscribe extension, with smart-DNS and end-to-end-encryption. Ideal for users who
 
 
 
